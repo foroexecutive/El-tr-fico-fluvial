@@ -1,1 +1,2 @@
-# El-tr-fico-fluvial
+# El-tráfico-fluvial
+En cuanto concierne al tráfico interior, este se realizaba en la proporción de 61,9% de vapores y 38,1% de veleros; el grado de mecanización en esta rama del transporte era, hacia 1880, muy elevado. Debe señalarse que la mayor cantidad de veleros, cuyo porte sumamente reducido aconseja atribuirles una importancia menor, estaba destinada a los cruces de los diversos ríos en el tráfico entre los puertos argentinos de una y otra margen del río Paraná.
